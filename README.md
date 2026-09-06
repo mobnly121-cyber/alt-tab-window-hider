@@ -5,3 +5,20 @@ if u pres u 3 times fast it recovers that window
 the window cant be fullscreen
 if u press t 3 times u select what u wanna recover
 enjoy (:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+btw ts is completely vibecoded i didnt code anything in this
+if ur gonna be mad that its vibecoded just dont download it lol
